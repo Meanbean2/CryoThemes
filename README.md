@@ -5,11 +5,11 @@
 # My M1ku Blue PSP theme: Downloads below: VVV
 ![Untitled217_20250517212404](https://github.com/user-attachments/assets/0e7821e6-bd57-4d81-83c2-8af8104e2cb8)
 
-<p> Google Drive: https://drive.google.com/file/d/1QcJQGqRd5C33_K8bEmIFeqs8VIIxG3iM/view?usp=sharing
+<p> Google Drive: https://drive.google.com/file/d/1e5mJE7WNc3ePzXBZuY_BQrg0OUr-5kIh/view?usp=sharing
+  
+Mega: https://mega.nz/file/0mYgzS7C#k0JapIV_my4RqY1sUcNcNnK5B_xc1E2ETpYIiEL4DKk
 
-Mega: https://mega.nz/file/tqo1wDiR#S6xWqZw7SCqeeaL0ZjX-FWvX7bQfeWyIsb0C1CcqwK4
-
-Drop Box: https://www.dropbox.com/scl/fi/2tjqc7tnhzd81pn2vh0aj/M1ku-Blue-0.7.ptf?rlkey=ontovmzxicskxr1dsb47ee6j6&st=gsq93jkv&dl=0</p>
+Drop Box: https://www.dropbox.com/scl/fi/k3uj7hg9pvlhh54d04yc0/M1ku-Blue-0.8.ptf?rlkey=msbo302b17lbshtnygu0rldth&st=yatpfteu&dl=0</p>
 
 ##
 ## Wallpaper:
