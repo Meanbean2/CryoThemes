@@ -2,7 +2,7 @@
 
 
 
-# My M1ku Blue PSP theme: Downloads below: VVV
+# My M1Ku Blue PSP theme: Downloads below: VVV
 ![Untitled217_20250517212404](https://github.com/user-attachments/assets/0e7821e6-bd57-4d81-83c2-8af8104e2cb8)
 
 <p> Google Drive: https://drive.google.com/file/d/1e5mJE7WNc3ePzXBZuY_BQrg0OUr-5kIh/view?usp=sharing
