@@ -1,4 +1,4 @@
-<p>Hello, welcome to my page for my PSP themes. Its quiet empty right now, but you come back evetually to see more later!</p>
+<p>Hello, welcome to my page for my PSP themes. Its quiet empty right now, but you come back eventually to see more later!</p>
 
 
 
